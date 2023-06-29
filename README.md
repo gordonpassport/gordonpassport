@@ -10,7 +10,5 @@
 ![](https://camo.githubusercontent.com/64e7c9cf1c98ce95f8ba8c7be23bb71f55a8ca6668b328e1487407fccb8aee48/68747470733a2f2f692e696d6775722e636f6d2f3071356b6e456e2e706e67)![](https://64.media.tumblr.com/f29fc15427d9c15ff9d7e7da4f1e1368/c5a8e84e1f53c9db-e3/s100x200/edef63d052e7accc94cf07885ec1802fa689de93.pnj)![](https://64.media.tumblr.com/1731cda1026a2f788f884606431a0125/13b0b666c1ac124f-15/s100x200/d3e949f2302f4042d18336b44bcae453d14abe87.pnj)![](https://64.media.tumblr.com/6d3d19cc4631593caeb65b7cf083b585/13b0b666c1ac124f-a2/s100x200/eafd00e96032a87d32211307cddd4705b2cda300.pnj)
 
 
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/53dc108149f9d0d999b014c4d8d7a177/0df20b042b1b6535-5d/s250x400/eb911bd187cb1bb495c73459ed3d3dadfe7f2fab.gifv" />
-</p>
+![](https://64.media.tumblr.com/53dc108149f9d0d999b014c4d8d7a177/0df20b042b1b6535-5d/s250x400/eb911bd187cb1bb495c73459ed3d3dadfe7f2fab.gifv)
+<img src="https://komarev.com/ghpvc/?username=your-github-gordonpassport&style=flat-square&color=blue" alt=""/>

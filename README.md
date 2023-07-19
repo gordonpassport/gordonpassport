@@ -1,5 +1,5 @@
 ![](https://64.media.tumblr.com/aceb35688a372df82ebe8ac2591573a5/751d0d162acbd770-c7/s640x960/49e14765afc1df5885d4f1a8f925021eae02544a.jpg)
-***
+
 ![](https://files.catbox.moe/gg6etm.png)![](https://64.media.tumblr.com/bfafc80b28ff5e16d3480debe28b426f/13ddacd4e434bd1e-0f/s100x200/07963ab1c9916be0aa23d35410561cd71f7b1084.gifv)![](https://64.media.tumblr.com/3a0e65529ca7702a8e31d3c381337f86/1561ec1194c10e85-3c/s100x200/0a7f75b8a49957bd81d604ead42116150c7b0d84.pnj)![](https://64.media.tumblr.com/ba026c8ed62dd04cd98509783425b8fb/8ecbdada1c406852-6e/s100x200/50821ac3181af0eeef8272a6f980825bd80dbd92.gifv)
 
 ![](https://64.media.tumblr.com/f5d8719cdf10ccd4d78cffb486078061/6f1804d74e3a3f2b-3c/s250x400/447ae7557b52bcacba70e472886bd9c9f19be6d8.gifv)![](https://64.media.tumblr.com/a4c3da90eea114683a222fde78c4f2c7/6f1804d74e3a3f2b-71/s250x400/03e3a01a62c8396ce7565546512958bea4c27009.gifv)![](https://64.media.tumblr.com/fa92211918f522444938cdfe0b214e72/228fd705964f65be-07/s250x400/cdcd6b50dbd25fb52ea60b0883e1e1bc7eb8ab62.gifv)
@@ -11,6 +11,6 @@
 ![](https://camo.githubusercontent.com/64e7c9cf1c98ce95f8ba8c7be23bb71f55a8ca6668b328e1487407fccb8aee48/68747470733a2f2f692e696d6775722e636f6d2f3071356b6e456e2e706e67)![](https://64.media.tumblr.com/f29fc15427d9c15ff9d7e7da4f1e1368/c5a8e84e1f53c9db-e3/s100x200/edef63d052e7accc94cf07885ec1802fa689de93.pnj)![](https://64.media.tumblr.com/1731cda1026a2f788f884606431a0125/13b0b666c1ac124f-15/s100x200/d3e949f2302f4042d18336b44bcae453d14abe87.pnj)![](https://64.media.tumblr.com/6d3d19cc4631593caeb65b7cf083b585/13b0b666c1ac124f-a2/s100x200/eafd00e96032a87d32211307cddd4705b2cda300.pnj)
 
 ![](https://64.media.tumblr.com/53dc108149f9d0d999b014c4d8d7a177/0df20b042b1b6535-5d/s250x400/eb911bd187cb1bb495c73459ed3d3dadfe7f2fab.gifv) .  . _credits_: [★](https://www.tumblr.com/inkypuddles/722321176683315200/meme-redraw) [★](https://www.tumblr.com/inkypuddles/716896275453394944/coloured-ver-of-doodle-for-fun)
-***
+
 ![](https://i.pinimg.com/564x/1f/7f/f3/1f7ff3c65c457484c64ca8023d83dd16.jpg)
 

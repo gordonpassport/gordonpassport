@@ -1,4 +1,4 @@
-### [СП5 FANS JUMPSCARE](https://i.ibb.co/qkFpFY9/2.png) /im srs think so
+### [СП5 FANS JUMPSCARE](https://i.ibb.co/qkFpFY9/2.png) /im srs support it
 ***
 
 ![](https://i.postimg.cc/rm86Rbmy/1.png) ![](https://64.media.tumblr.com/424893cc3dd91c1bc812c984c85b851e/tumblr_pr5fp5heOS1wi417bo2_540.gifv) ![](https://i.postimg.cc/rm86Rbmy/1.png)

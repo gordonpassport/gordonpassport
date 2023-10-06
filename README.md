@@ -1,5 +1,5 @@
 <div>
-    <a href="https://www.tumblr.com/beep-bul/179421754768">credit</a>
+    <a href="https://www.tumblr.com/beep-bul/179421754768">credit</a> ;; it's look good w/ bright-theme
 </div>
 
 ***

@@ -6,4 +6,5 @@
 ![](https://sun9-46.userapi.com/impg/9MbzgvvTOSgS7sm1NPYx1al136hrKaczh2ZgBw/9-DZ2ewuMrs.jpg?size=2560x1072&quality=96&sign=88bfb99f2165e6e6c53efce158cd7206&type=album)
 [CR P1C](https://vk.com/qfict.media?z=photo-201679647_457239287%2Falbum-201679647_00%2Frev)
 ![](https://sun9-8.userapi.com/impg/WlWOklLqbXVW0_skqA7BimgY1clYS2S9boNdGw/41rZO4H3ovc.jpg?size=1333x952&quality=96&sign=f566a500a24d79869a8986f1f89e1f4d&type=album)
+![](https://sun9-50.userapi.com/impg/8pKUx8fICd0OD9VwMYbnWosb-IfKSkQDVvI86Q/2edY9ePcuzk.jpg?size=1280x850&quality=96&sign=14b24948f2dee58f6c5ef8cd9eb8e9af&type=album)
   

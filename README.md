@@ -1,9 +1,9 @@
-![](https://64.media.tumblr.com/314150f0df298a4a6c42eee752769de1/eaf05428aed9287a-54/s400x600/a75068f094ba8781486d1a12d011bd76752e2f34.gifv)![](https://64.media.tumblr.com/589794b694d44ff7704c02cfdf2b923e/eaf05428aed9287a-14/s400x600/b216ae7f1bbc25321e8e2bba07f2b43553877634.gifv)
 
 <p align="center">
-  <img src="https://sun9-38.userapi.com/impg/XoSQEutNAkqVJnRPT-HOPGSVmglxpxlpC1PRpg/2lJHBo49KDw.jpg?size=1610x1920&quality=95&sign=2ee66b6d38509de87d4fabef0c51e8c2&type=album" />
-</p>
+ <img src="https://i.imgur.com/Cy82lEn.gif"><img src="https://64.media.tumblr.com/692b97d8e3204742445172e9fa4c2393/d79b386dd434d7d8-33/s250x400/56ca706d7e9635c60362a6dda19c5873efaef6fa.pnj"><img src="https://y2k.neocities.org/stamps2/glow_in_the_dark_by_glittersludge-day6eyf.png">
+ </p>
 
-credits: [pfp](https://baka7434.lofter.com/post/1f265a2f_2b409802e), [pic](https://vk.com/wall-141121774?q=%23Пиво&w=wall-141121774_42952)
-
-
+![](https://sun9-46.userapi.com/impg/9MbzgvvTOSgS7sm1NPYx1al136hrKaczh2ZgBw/9-DZ2ewuMrs.jpg?size=2560x1072&quality=96&sign=88bfb99f2165e6e6c53efce158cd7206&type=album)
+[CR P1C](https://vk.com/qfict.media?z=photo-201679647_457239287%2Falbum-201679647_00%2Frev)
+![](https://sun9-8.userapi.com/impg/WlWOklLqbXVW0_skqA7BimgY1clYS2S9boNdGw/41rZO4H3ovc.jpg?size=1333x952&quality=96&sign=f566a500a24d79869a8986f1f89e1f4d&type=album)
+  

@@ -11,5 +11,22 @@
   ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤu can sit w/ me if u want, im mostly afk. ㅤ  <img src="https://64.media.tumblr.com/1445a7da70f21606327a845c85d9673b/a5f312680aee2872-c4/s250x400/8c3692b81624882f365655e6bac402ddf78dd7aa.gifv">
 
   ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤ<img src="https://64.media.tumblr.com/80a666f52b988898ec6cb6cbbabd8c19/f4b1872f11d6a79e-21/s250x400/ffab7ed1275d15681200ec9250aceff5012e6b62.gifv"> ㅤ  i have diagnosed [DID](https://en.wikipedia.org/wiki/Dissociative_identity_disorder) and [ADHD](https://en.wikipedia.org/wiki/Attention_deficit_hyperactivity_disorder) ㅤ  <img src="https://64.media.tumblr.com/4f9daee64c3be290e4b2f3e0ec8c64d2/f4b1872f11d6a79e-28/s75x75_c1/60e455fde8d472baab1935aed6b410cff34f3a31.gifv">
+
+
+  ㅤ   ㅤ  
+  ㅤ   ㅤ  
+  ㅤ   ㅤ  
+  <img src="https://64.media.tumblr.com/096f7d21572f8260c4cd665cc4012d93/0637cbcbe15db0c5-92/s2048x3072/851600a49f5cf190d170ed9fe20c9ca646544e49.pnj"> cr: [@tobisaw](https://www.tumblr.com/tobisaw/735418367791480832/drawing-the-game-models-was-much-less-of-a-pain)
   
+
+  ㅤ   ㅤ  
+  ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤcLicK for art / rentry / text mw : ㅤ  [![](https://64.media.tumblr.com/2d97d1d12b20a0ab8ad6a4bcef0ab7b3/6b550b8054a97540-db/s100x200/4a2b6f1e4e5e6cb88e6d9bb0536470e2caef50f6.gifv)](https://t.me/scottfounddead) ㅤ  [![](https://64.media.tumblr.com/a55bdb584694d7ce3f1971e9c417b390/6b550b8054a97540-13/s100x200/00dceecd5a448d9b73c69495c6c0a9836ca35d4e.gifv)](https://rentry.co/ramzeysrentry) ㅤ  [![](https://64.media.tumblr.com/748eb678480596b4f9429bd412a24934/6b550b8054a97540-1e/s100x200/e8879ade12d1f05c7032ae295aba0846bc6e3544.gifv)](https://t.me/drramzee)
+
+
+  ㅤ   ㅤ  
+  ㅤ   ㅤ  
+  ㅤ 
+ <img src="https://64.media.tumblr.com/a999e5e8e8085c7248572331ae5eb6eb/d0ed7dbb0efd7723-d4/s540x810/6675a9ced79cbe61ee31f709ff82fe4addc3a24a.pnj">
+ 
  </p>
+ 

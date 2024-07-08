@@ -26,7 +26,7 @@
   ㅤ   ㅤ  
   ㅤ   ㅤ  
   ㅤ 
- <img src="https://64.media.tumblr.com/a999e5e8e8085c7248572331ae5eb6eb/d0ed7dbb0efd7723-d4/s540x810/6675a9ced79cbe61ee31f709ff82fe4addc3a24a.pnj">
+  ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ     ㅤ      ㅤ   <img src="https://64.media.tumblr.com/5440b6efdbc9facb2a130ef179540abe/b11d62fc476578a5-b7/s1280x1920/5ea135fb8f8ba6d9df579c88479aebe57b38c635.jpg">
  
  </p>
  

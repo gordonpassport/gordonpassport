@@ -7,5 +7,7 @@
   <p align="center">
  <img src="https://iimg.su/s/08/h6YimUASTFkO7BjIXT5Xn393npAhYBZWzCWJMOzI.png">
    
- ㅤ   ㅤ  ㅤ   ㅤ   <img src="https://64.media.tumblr.com/376b6ae9e4f76af319d50849aa349bd1/e9920c8f357ee826-1e/s100x200/56faa2f9e28528ea845120171d2d43e00a41a935.gifv">:: ㅤ  **IM _NOT_ MINOR !!** ㅤ  <img src="https://64.media.tumblr.com/4e50a9b663845b148487cb8612b56457/006669a6cf301fb7-e9/s250x400/d1407f2fe83cf094770aa54686caed690ff4d0a6.gifv"> ㅤ  neutral-gender +bugthing
+ ㅤ   ㅤ  ㅤ   ㅤ   <img src="https://64.media.tumblr.com/376b6ae9e4f76af319d50849aa349bd1/e9920c8f357ee826-1e/s100x200/56faa2f9e28528ea845120171d2d43e00a41a935.gifv">:: ㅤ  **IM _NOT_ MINOR !!** ㅤ  <img src="https://64.media.tumblr.com/4e50a9b663845b148487cb8612b56457/006669a6cf301fb7-e9/s250x400/d1407f2fe83cf094770aa54686caed690ff4d0a6.gifv"> ㅤ  neutral-gender +bugthing 
+
+  ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤu can sit w/ me if u want, im mostly afk. ㅤ  <img src="https://64.media.tumblr.com/1445a7da70f21606327a845c85d9673b/a5f312680aee2872-c4/s250x400/8c3692b81624882f365655e6bac402ddf78dd7aa.gifv">
  </p>

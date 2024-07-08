@@ -23,11 +23,5 @@
   ㅤ   ㅤ  
   ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤcLicK for art / rentry / text mw : ㅤ  [![](https://64.media.tumblr.com/2d97d1d12b20a0ab8ad6a4bcef0ab7b3/6b550b8054a97540-db/s100x200/4a2b6f1e4e5e6cb88e6d9bb0536470e2caef50f6.gifv)](https://t.me/scottfounddead) ㅤ  [![](https://64.media.tumblr.com/a55bdb584694d7ce3f1971e9c417b390/6b550b8054a97540-13/s100x200/00dceecd5a448d9b73c69495c6c0a9836ca35d4e.gifv)](https://rentry.co/ramzeysrentry) ㅤ  [![](https://64.media.tumblr.com/748eb678480596b4f9429bd412a24934/6b550b8054a97540-1e/s100x200/e8879ade12d1f05c7032ae295aba0846bc6e3544.gifv)](https://t.me/drramzee)
 
-
-  ㅤ   ㅤ  
-  ㅤ   ㅤ  
-  ㅤ 
-  ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ     ㅤ      ㅤ   <img src="https://64.media.tumblr.com/5440b6efdbc9facb2a130ef179540abe/b11d62fc476578a5-b7/s1280x1920/5ea135fb8f8ba6d9df579c88479aebe57b38c635.jpg">
- 
  </p>
  

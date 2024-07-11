@@ -11,7 +11,7 @@
 
   ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤu can sit w/ me if u want, im mostly afk. ㅤ  <img src="https://64.media.tumblr.com/1445a7da70f21606327a845c85d9673b/a5f312680aee2872-c4/s250x400/8c3692b81624882f365655e6bac402ddf78dd7aa.gifv">
 
-  ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤ<img src="https://64.media.tumblr.com/80a666f52b988898ec6cb6cbbabd8c19/f4b1872f11d6a79e-21/s250x400/ffab7ed1275d15681200ec9250aceff5012e6b62.gifv"> ㅤ  i have diagnosed [DID](https://en.wikipedia.org/wiki/Dissociative_identity_disorder) and [ADHD](https://en.wikipedia.org/wiki/Attention_deficit_hyperactivity_disorder) ㅤ  <img src="https://64.media.tumblr.com/4f9daee64c3be290e4b2f3e0ec8c64d2/f4b1872f11d6a79e-28/s75x75_c1/60e455fde8d472baab1935aed6b410cff34f3a31.gifv">
+  ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤ<img src="https://64.media.tumblr.com/80a666f52b988898ec6cb6cbbabd8c19/f4b1872f11d6a79e-21/s250x400/ffab7ed1275d15681200ec9250aceff5012e6b62.gifv"> ㅤ  i have diagnosed  [ADHD](https://en.wikipedia.org/wiki/Attention_deficit_hyperactivity_disorder) ㅤ  <img src="https://64.media.tumblr.com/4f9daee64c3be290e4b2f3e0ec8c64d2/f4b1872f11d6a79e-28/s75x75_c1/60e455fde8d472baab1935aed6b410cff34f3a31.gifv">
 
    ㅤ   ㅤ  ㅤ   ㅤ  ㅤ  ㅤ ㅤ ㅤ     ㅤ ㅤim begginer site desinger and some smol artist +cosplayer
 

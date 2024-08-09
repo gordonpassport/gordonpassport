@@ -5,7 +5,7 @@
  ㅤ  ㅤ
  ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ    ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ 
   <p align="center">
- <img src="https://iimg.su/s/08/h6YimUASTFkO7BjIXT5Xn393npAhYBZWzCWJMOzI.png">
+ <img src="https://i.postimg.cc/3JW5DmN1/68747470733a2f2f69696d672e73752f732f30382f683659696d55415354466b4f37426a49585435586e3339336e70416859.png">
    
  ㅤ   ㅤ  ㅤ   ㅤ   <img src="https://64.media.tumblr.com/376b6ae9e4f76af319d50849aa349bd1/e9920c8f357ee826-1e/s100x200/56faa2f9e28528ea845120171d2d43e00a41a935.gifv">:: ㅤ  **IM _NOT_ MINOR !!** ㅤ  <img src="https://64.media.tumblr.com/4e50a9b663845b148487cb8612b56457/006669a6cf301fb7-e9/s250x400/d1407f2fe83cf094770aa54686caed690ff4d0a6.gifv"> ㅤ  neutral +bugthing 
 
